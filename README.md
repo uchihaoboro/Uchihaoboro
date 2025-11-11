@@ -1,6 +1,6 @@
 ## Hi, I'm Oboro 👋
 
-- ☁️ A coding newbie and a keep my Head in the Clouds
+- ☁️ A coding newbie and I keep my Head in the Clouds
 - 🖥️ I love Technology
 - 🎮 Gamer
 - 🧠 Love to learn new things
